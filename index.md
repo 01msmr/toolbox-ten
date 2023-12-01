@@ -14,4 +14,4 @@ See http://www.mdwiki.info/ for more documentation and details.
 1. a
 1. b
 1. c
-1.* d
+ * d
