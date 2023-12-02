@@ -4,6 +4,7 @@ Beachte:
 SCHALTE IN KEINEM FALL IN EINER WERKSTATT EIN GERÄT OHNE AUFSICHT EINES TOOLBOX-MITGLIEDS EIN.
 Gerne zeigt Dir ein Vereinsmitglied die Möglichkeiten jener Werkstatt.
 
+---
 
 ## Holzwerkstatt
 
