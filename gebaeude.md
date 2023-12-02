@@ -11,16 +11,17 @@ auf 3 Etagen findest Du diese Vereine:
 ## Toolbox Bodensee e.V.
 Der Verein Toolbox Bodensee nutzt das Ergeschoss und das erste Obergeschoss, sowie den Keller.
 
-### im EG - Ergeschoss findest Du
-#### Küche
-#### ruum42
-#### Lounge
-#### Holzwerkstatt
-#### CNC-Werkstatt
-#### Siebdruckwerkstatt
-#### Keller
-#### Lager
-#### Toilette
+### im EG - Ergeschoss findest Du:
+
+* Küche
+* ruum42
+* Lounge
+* Holzwerkstatt
+* CNC-Werkstatt
+* Siebdruckwerkstatt
+* Lager
+* Keller
+* Toilette
 
 ### im UG - Keller findest Du
 #### Metallwerkstatt (work in pgrogress)
