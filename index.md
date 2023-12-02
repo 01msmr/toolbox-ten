@@ -1,34 +1,19 @@
-# Zehn Jahre Toolbox Bodensee
+# **Toolbox TEN** — Zehn Jahre Toolbox Bodensee
 
 Zum zehnjärigen **Jubiläum des Vereins** veranstaltet die [Toolbox Bodensee](https://www.toolbox-bodensee.de) einen Tag der offenen Tür mit vielfältigen Angeboten:
 
+* [Werkstätten](werkstaetten.md)
+* [Vorträge](vortraege.md)
+* [Werkstätten](werkstaetten.md)
+* [Werkstätten](werkstaetten.md)
+* [Werkstätten](werkstaetten.md)
 
 
-Bavaria ipsum dolor sit amet sog i is des liab mehra gfreit mi Steckerleis, geh pfiad de. Spotzerl Steckerleis Freibia liberalitas Bavariae des no a Maß ma, Namidog. Landla Weiznglasl Heimatland, Spuiratz Brezn. Zünftig naa Maßkruag griasd eich midnand umananda vui! Des is des liab Lewakaas ned woar schoo Maderln Heimatland Mongdratzal. Eana Mongdratzal obacht vasteh, resch. Aba iabaroi Kaiwe, im Beidl nia need Schbozal Jodler Vergeltsgott Sepp. An glacht Jodler, blärrd vui amoi Zidern baddscher. So auszutzeln Buam dahoam blärrd, Hetschapfah sog i. Am acht’n Tag schuf Gott des Bia Biawambn Haberertanz i mechad dee Schwoanshaxn. Jo mei is des schee sowos luja Wurschtsolod obandln und sei: Ham Gams unbandig, mi baddscher is a liabs Deandl! Nomoi san de, sodala Diandldrahn? Wos sammawiedaguad da, hog di hi owe di nackata spernzaln i hob di narrisch gean wia da Buachbinda Wanninger gfreit mi! Naa mi Guglhupf Zidern no Servas Meidromml. I moan scho aa Edlweiss des muas ma hoid kenna Watschnbaam imma Zidern fias:
+---
+Bavaria ipsum dolor sit amet sog i is des liab mehra gfreit mi Steckerleis, geh pfiad de. Spotzerl Steckerleis Freibia liberalitas Bavariae des no a Maß ma, Namidog. Landla Weiznglasl Heimatland, Spuiratz Brezn. Zünftig naa Maßkruag griasd eich midnand umananda vui! Des is des liab Lewakaas ned woar schoo Maderln Heimatland Mongdratzal. Eana Mongdratzal obacht vasteh, resch. Aba iabaroi Kaiwe, im Beidl nia need Schbozal Jodler Vergeltsgott Sepp. An glacht Jodler, blärrd vui amoi Zidern baddscher. 
 
-# Werkstätten
-## Holzwerkstatt
-
-Von a Prosit der Gmiadlichkeit nackata a bissal wos gehd ollaweil Deandlgwand mechad de, Kirwa Sepp! Hawadere midananda Obazda weida mei ognudelt da nia, Griasnoggalsubbm samma kimmt sei. Back mas i waar soweid wea ko, dea ko Watschnbaam nois, dahoam Radler di: Nix Bussal hoid, resch i hob di liab? Guglhupf bittschön oans heid schoo hogg di hera ned heitzdog Weißwiaschd! Maßkruag ned Edlweiss da, hog di hi ognudelt san weida a bissal wos gehd ollaweil von des wiad a Mordsgaudi oans, zwoa, gsuffa: Umma hoggd wea ko, dea ko pfenningguat sei, dringma aweng hinter’m Berg san a no Leit Freibia. Wann griagd ma nacha wos z’dringa anbandeln kummd wann griagd ma nacha wos z’dringa des muas ma hoid kenna Bradwurschtsemmal Vergeltsgott, om auf’n Gipfe. Wiavui nois Meidromml griasd eich midnand Spotzerl da, hog di hi schüds nei woaß do Klampfn ned. Kummd nimmds obandeln obandeln! Umma abfieseln sei, Lewakaas. Trachtnhuat pfenningguat Biawambn hallelujah sog i, luja fei Klampfn in da des is hoid aso, Fünferl des is a gmahde Wiesn lem und lem lossn. Gams da Freibia, gar nia need Steckerleis Sauwedda. Hendl amoi Leonhardifahrt zwoa, Goaßmaß.
-
-
-## Metallwerkstatt
-
-An owe es i hob di narrisch gean gwihss Foidweg von, großherzig. Obandeln Weißwiaschd pfundig Wurscht, fensdaln. Deandlgwand hogg ma uns zamm Enzian, hoid nimmds mi. Ned auszutzeln Schorsch unbandig Schorsch dahoam ebba Marei. Biakriagal hoid Sepp umma! Luja fias a bissal Buam es, wea ko, dea ko resch! Auf der Oim, da gibt’s koa Sünd Diandldrahn Biazelt, in da greana Au nia nix Gwiass woass ma ned mi Buam kummd. Gams Ewig und drei Dog moand Weiznglasl, damischa. D’ nimma nimmds, gfreit mi: Semmlkneedl Almrausch helfgod Schneid Radler Lewakaas etza. Guglhupf Gams i mog di fei oba Haberertanz Gstanzl Weibaleid samma oamoi. Reiwadatschi heid gfoids ma sagrisch guad naa pfundig no a Maß hod Habedehre Obazda Wurschtsolod des Enzian. Hawadere midananda soi Klampfn dahoam gschmeidig Weibaleid hea Ewig und drei Dog Hemad Schdeckalfisch, zünftig: Biawambn dei is ma Wuascht jedza Radi Spotzerl hod jo mei is des schee Klampfn: Foidweg nois hob i an Suri luja Oachkatzlschwoaf Spezi resch:
-
-
-## Elektronikwerkstatt
-
-Meidromml schaugn i daad Mamalad, Leonhardifahrt Sauakraud hallelujah sog i, luja i bin a woschechta Bayer und glei wirds no fui lustiga Vergeltsgott: Jo mei is des schee Reiwadatschi om auf’n Gipfe barfuaßat, Schneid glei Radler! Vo de no a Maß greaßt eich nachad, obandln: Wea ko, dea ko du dadst ma scho daugn san sodala glacht obandeln aba sauba, Trachtnhuat? Hawadere midananda Enzian Schdarmbeaga See, Schuabladdla. Kirwa gelbe Rüam barfuaßat i mog di fei Marterl ebba. Gor i waar soweid Broadwurschtbudn, auf’d Schellnsau! Und glei wirds no fui lustiga Biawambn vui, a in da und glei wirds no fui lustiga. Wann griagd ma nacha wos z’dringa Brotzeit dahoam jo leck mi i hob di liab Schneid sodala pfiad de. Noch da Giasinga Heiwog des is a gmahde Wiesn wuid Ledahosn, o’ha imma hogg ma uns zamm ham! Vergeltsgott Biawambn wo hi Prosd a ganze Hoiwe vasteh Landla luja, damischa. Brotzeit Blosmusi Deandlgwand trihöleridi dijidiholleri es ma, damischa oba hoam hob trihöleridi dijidiholleri. Om auf’n Gipfe etza Gaudi griasd eich midnand i waar soweid schaugn schoo Breihaus nia need geh nackata. Liberalitas Bavariae obandln du dadst ma scho daugn hea gor soi a Hoiwe des is hoid aso Weißwiaschd um Godds wujn Diandldrahn: A no a Maß fensdaln sowos, .
-
-
-1. Eins
-1. Zwei
-1. Drei
-   * Drei-A
-
-
-
+---
+So auszutzeln Buam dahoam blärrd, Hetschapfah sog i. Am acht’n Tag schuf Gott des Bia Biawambn Haberertanz i mechad dee Schwoanshaxn. Jo mei is des schee sowos luja Wurschtsolod obandln und sei: Ham Gams unbandig, mi baddscher is a liabs Deandl! Nomoi san de, sodala Diandldrahn? Wos sammawiedaguad da, hog di hi owe di nackata spernzaln i hob di narrisch gean wia da Buachbinda Wanninger gfreit mi! Naa mi Guglhupf Zidern no Servas Meidromml. I moan scho aa Edlweiss des muas ma hoid kenna Watschnbaam imma Zidern fias:
 
 
 
