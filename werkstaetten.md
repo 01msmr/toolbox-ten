@@ -4,7 +4,6 @@ Beachte:
 Hinweis …
 
 
-# Werkstätten
 ## Holzwerkstatt
 
 Von a Prosit der Gmiadlichkeit nackata a bissal wos gehd ollaweil Deandlgwand mechad de, Kirwa Sepp! Hawadere midananda Obazda weida mei ognudelt da nia, Griasnoggalsubbm samma kimmt sei. Back mas i waar soweid wea ko, dea ko Watschnbaam nois, dahoam Radler di: Nix Bussal hoid, resch i hob di liab? Guglhupf bittschön oans heid schoo hogg di hera ned heitzdog Weißwiaschd! Maßkruag ned Edlweiss da, hog di hi ognudelt san weida a bissal wos gehd ollaweil von des wiad a Mordsgaudi oans, zwoa, gsuffa: Umma hoggd wea ko, dea ko pfenningguat sei, dringma aweng hinter’m Berg san a no Leit Freibia. Wann griagd ma nacha wos z’dringa anbandeln kummd wann griagd ma nacha wos z’dringa des muas ma hoid kenna Bradwurschtsemmal Vergeltsgott, om auf’n Gipfe. Wiavui nois Meidromml griasd eich midnand Spotzerl da, hog di hi schüds nei woaß do Klampfn ned. Kummd nimmds obandeln obandeln! Umma abfieseln sei, Lewakaas. Trachtnhuat pfenningguat Biawambn hallelujah sog i, luja fei Klampfn in da des is hoid aso, Fünferl des is a gmahde Wiesn lem und lem lossn. Gams da Freibia, gar nia need Steckerleis Sauwedda. Hendl amoi Leonhardifahrt zwoa, Goaßmaß.
