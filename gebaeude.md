@@ -18,7 +18,10 @@ Der Verein Toolbox Bodensee nutzt das Ergeschoss und das erste Obergeschoss, sow
 #### Keller
 #### Holzwerkstatt
 #### CNC-Werkstatt
+#### Siebdruckwerkstatt
 #### Lager
+#### Toilette
 
-
+### im UG - Keller findest Du
+#### Metallwerkstatt (work in pgrogress)
 
