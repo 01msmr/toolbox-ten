@@ -1,6 +1,6 @@
-# **Zehn Jahre Toolbox Bodensee**
+# Zehn Jahre Toolbox Bodensee
 
-Zum zenhjärigen **Jubiläum des Vereins** veranstaltet die [Toolbox Bodensee](https://www.toolbox-bodensee.de) einen Tag der offenen Tür mit vielfältigen Angeboten:
+Zum zehnjärigen **Jubiläum des Vereins** veranstaltet die [Toolbox Bodensee](https://www.toolbox-bodensee.de) einen Tag der offenen Tür mit vielfältigen Angeboten:
 
 
 
