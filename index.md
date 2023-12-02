@@ -8,7 +8,16 @@ Zum zehnjärigen **Jubiläum des Vereins** veranstaltet die [Toolbox Bodensee](h
 * [Werkstätten](werkstaetten.md)
 * [Werkstätten](werkstaetten.md)
 
+## Entstehungsgeschichte der Toolbox
 
+### 2014
+
+### 2015
+
+### 2017
+
+### 2020 - 2022
+#### Corona-Auswirkungen
 ---
 Bavaria ipsum dolor sit amet sog i is des liab mehra gfreit mi Steckerleis, geh pfiad de. Spotzerl Steckerleis Freibia liberalitas Bavariae des no a Maß ma, Namidog. Landla Weiznglasl Heimatland, Spuiratz Brezn. Zünftig naa Maßkruag griasd eich midnand umananda vui! Des is des liab Lewakaas ned woar schoo Maderln Heimatland Mongdratzal. Eana Mongdratzal obacht vasteh, resch. Aba iabaroi Kaiwe, im Beidl nia need Schbozal Jodler Vergeltsgott Sepp. An glacht Jodler, blärrd vui amoi Zidern baddscher. 
 
