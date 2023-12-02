@@ -25,6 +25,10 @@ Der Verein Toolbox Bodensee nutzt das Ergeschoss und das erste Obergeschoss, sow
 ### im UG - Keller findest Du
 #### Metallwerkstatt (work in pgrogress)
 
-## Toolbox Bodensee e.V.
+## Notfunk Bodensee e.V.
 Der Verein Notfunk Bodensee nutzt das 2. OG.
+
+
+## Freifunk Bodensee
+Der Verein Freifunk Bodensee nutzt die Räume der Toolbox.
 
