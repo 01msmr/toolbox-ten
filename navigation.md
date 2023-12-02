@@ -1,6 +1,6 @@
 # Toolbox TEN
 
-[Werkstätten]()
+[Werkstätten](werkstätten)
 
   * # digital
   * [Programmieren](programmieren.md)

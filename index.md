@@ -2,16 +2,15 @@
 
 Zum zehnjährigen Jubiläum (/Geburtstag) veranstaltet die [Toolbox Bodensee](https://www.toolbox-bodensee.de)
 
-Beachte:
-Hinweis …
-
-## Holzwerkstatt
+## Werkstätten
+### Holzwerkstatt
 
 
-## Metallwerkstatt
+### Metallwerkstatt
 
 
-## Elektronikwerkstatt
+### Elektronikwerkstatt
+
 
 1. Eins
 1. Zwei
