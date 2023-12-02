@@ -33,18 +33,10 @@ Bavaria ipsum dolor sit amet sog i is des liab mehra gfreit mi Steckerleis, geh 
 
 Bavaria ipsum dolor sit amet sog i is des liab mehra gfreit mi Steckerleis, geh pfiad de. Spotzerl Steckerleis Freibia liberalitas Bavariae des no a Maß ma, Namidog. Landla Weiznglasl Heimatland, Spuiratz Brezn. Zünftig naa Maßkruag griasd eich midnand umananda vui! Des is des liab Lewakaas ned woar schoo Maderln Heimatland Mongdratzal.
 
-Bavaria ipsum dolor sit amet sog i is des liab mehra gfreit mi Steckerleis, geh pfiad de. Spotzerl Steckerleis Freibia liberalitas Bavariae des no a Maß ma, Namidog. Landla Weiznglasl Heimatland, Spuiratz Brezn. Zünftig naa Maßkruag griasd eich midnand umananda vui! Des is des liab Lewakaas ned woar schoo Maderln Heimatland Mongdratzal.
-
----
-
-Bavaria ipsum dolor sit amet sog i is des liab mehra gfreit mi Steckerleis, geh pfiad de. Spotzerl Steckerleis Freibia liberalitas Bavariae des no a Maß ma, Namidog. Landla Weiznglasl Heimatland, Spuiratz Brezn. Zünftig naa Maßkruag griasd eich midnand umananda vui! Des is des liab Lewakaas ned woar schoo Maderln Heimatland Mongdratzal. Eana Mongdratzal obacht vasteh, resch. Aba iabaroi Kaiwe, im Beidl nia need Schbozal Jodler Vergeltsgott Sepp. An glacht Jodler, blärrd vui amoi Zidern baddscher. 
-
 ---
 So auszutzeln Buam dahoam blärrd, Hetschapfah sog i. Am acht’n Tag schuf Gott des Bia Biawambn Haberertanz i mechad dee Schwoanshaxn. Jo mei is des schee sowos luja Wurschtsolod obandln und sei: Ham Gams unbandig, mi baddscher is a liabs Deandl! Nomoi san de, sodala Diandldrahn? Wos sammawiedaguad da, hog di hi owe di nackata spernzaln i hob di narrisch gean wia da Buachbinda Wanninger gfreit mi! Naa mi Guglhupf Zidern no Servas Meidromml. I moan scho aa Edlweiss des muas ma hoid kenna Watschnbaam imma Zidern fias:
 
-
 ---
-
 
 Schneid a bissal wos gehd ollaweil hoid vui huift vui gelbe Rüam i sog ja nix, i red ja bloß a so a Schmarn scheans: Sepp Biakriagal Schneid, baddscher? Nix Gwiass woass ma ned gar nia need a Maß und no a Maß hallelujah sog i, luja, gwihss umananda wea ko, dea ko kimmt. Obazda a Maß und no a Maß Gaudi heid singan vasteh oba midanand. Haferl schaugn abfieseln, wo hi pfundig Hemad a bravs. Wiesn Buam weida nomoi, midanand i mechad dee Schwoanshaxn. Jo mei is des schee wos muass, schüds nei. Griasnoggalsubbm is des liab samma mehra do legst di nieda Woibbadinga Blosmusi auszutzeln Resi de Sonn hoam: I moan oiwei i mog di fei nimma wolln, Obazda hi Hendl Gstanzl Zidern: Ned Haferl mi, allerweil Leonhardifahrt Biakriagal a bravs Reiwadatschi Biagadn Goaßmaß. Diandldrahn Obazda zünftig ebba af obandln hob i an Suri af so schee ozapfa Hetschapfah. A Maß und no a Maß ned Servas nois no Sauwedda zünftig! Boarischer Biaschlegl mei scheans is Fünferl gwiss wo hi ned Spuiratz Engelgwand: Geh Milli wuid aasgem gschmeidig Klampfn.
 
