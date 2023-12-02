@@ -23,4 +23,3 @@ Meidromml schaugn i daad Mamalad, Leonhardifahrt Sauakraud hallelujah sog i, luj
 1. Zwei
 1. Drei
    * Drei-A
-
