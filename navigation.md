@@ -2,7 +2,5 @@
 
 <!-- [Toolbox TEN](index) -->
 [Werkstätten](werkstaetten)
-
-  * # digital
-  * [Programmieren](programmieren.md)
-  * [Spieleentwicklung](spieleentwicklung.md)
+[Vorträge](vortraege.md)
+[Programmieren](programmieren.md)
