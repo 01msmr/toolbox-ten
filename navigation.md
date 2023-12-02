@@ -5,6 +5,7 @@
   * # physisch
   * [Holzwerkstatt](holz.md)
   * [Metallwerkstatt](metall.md)
+  * [Elektronikwerkstatt](elektronik.md)
   - - - -
   * # SubMenu Heading 2
   * [SubMenu Item 3](subitem3.md)
