@@ -2,9 +2,9 @@
 
 Zum zehnjärigen **Jubiläum des Vereins** veranstaltet die [Toolbox Bodensee](https://www.toolbox-bodensee.de) einen Tag der offenen Tür mit vielfältigen Angeboten wie z. B. [Vorträgen](vortraege.md), [Aktionen](aktionen.md) und [Führungen](fuehrungen.md) durch die Toolbox.
 
-## Entstehungsgeschichte der Toolbox
+## Entstehungsgeschichte
 
-## Toolbox — die ersten Jahre
+## Die ersten Jahre
 
 ### 2014
 
@@ -20,9 +20,16 @@ Bavaria ipsum dolor sit amet sog i is des liab mehra gfreit mi Steckerleis, geh 
 
 Bavaria ipsum dolor sit amet sog i is des liab mehra gfreit mi Steckerleis, geh pfiad de. Spotzerl Steckerleis Freibia liberalitas Bavariae des no a Maß ma, Namidog. Landla Weiznglasl Heimatland, Spuiratz Brezn. Zünftig naa Maßkruag griasd eich midnand umananda vui! Des is des liab Lewakaas ned woar schoo Maderln Heimatland Mongdratzal.
 
-## Corona und danach
+## Corona und die Auswirkungen
 
-### 2020 - 2022
+### 2020 - 2021
+
+Bavaria ipsum dolor sit amet sog i is des liab mehra gfreit mi Steckerleis, geh pfiad de. Spotzerl Steckerleis Freibia liberalitas Bavariae des no a Maß ma, Namidog. Landla Weiznglasl Heimatland, Spuiratz Brezn. Zünftig naa Maßkruag griasd eich midnand umananda vui! Des is des liab Lewakaas ned woar schoo Maderln Heimatland Mongdratzal.
+
+
+### Vorjahre
+
+### 2022 - 2023
 
 Bavaria ipsum dolor sit amet sog i is des liab mehra gfreit mi Steckerleis, geh pfiad de. Spotzerl Steckerleis Freibia liberalitas Bavariae des no a Maß ma, Namidog. Landla Weiznglasl Heimatland, Spuiratz Brezn. Zünftig naa Maßkruag griasd eich midnand umananda vui! Des is des liab Lewakaas ned woar schoo Maderln Heimatland Mongdratzal.
 
