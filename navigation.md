@@ -6,3 +6,5 @@
 [Aktionen](aktionen.md)
 [Vorträge](vortraege.md)
 [gimmick:themechooser](another theme?)
+
+[gimmick:theme](flatly)
