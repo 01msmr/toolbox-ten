@@ -5,6 +5,6 @@
 [Führungen](fuehrungen.md)
 [Aktionen](aktionen.md)
 [Vorträge](vortraege.md)
-[gimmick:themechooser](Design ändern)
+[gimmick:themechooser](theme)
 
 [gimmick:theme](flatly)
