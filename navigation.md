@@ -1,7 +1,7 @@
 # Toolbox TEN
 
 [das Gebäude](gebaeude.md)
-[die Werkstätten](werkstaetten.md)
 [Führungen](fuehrungen.md)
+[die Werkstätten](werkstaetten.md)
 [Aktionen](aktionen.md)
 [Vorträge](vortraege.md)
