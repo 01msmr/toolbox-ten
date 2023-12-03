@@ -5,6 +5,6 @@
 [die Werkstätten](werkstaetten.md)
 [Aktionen](aktionen.md)
 [Vorträge](vortraege.md)
-[gimmick:themechooser](another theme?)
+[gimmick:themechooser]((CSS-) Design ändern?)
 
 [gimmick:theme](flatly)
