@@ -7,4 +7,4 @@
 [Vorträge](vortraege.md)
 [gimmick:themechooser](another theme?)
 
-[gimmick:theme](minty)
+[gimmick:theme](flatly)
