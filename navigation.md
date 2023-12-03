@@ -5,6 +5,6 @@
 [Führungen](fuehrungen.md)
 [Aktionen](aktionen.md)
 [Vorträge](vortraege.md)
-[gimmick:themechooser](theme)
+[gimmick:themechooser](IO)
 
 [gimmick:theme](flatly)
