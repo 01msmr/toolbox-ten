@@ -4,6 +4,8 @@ Zum zehnjärigen **Jubiläum** veranstaltet der Verein im [Gebäude](gebaeude.md
 
 ## Entstehungsgeschichte
 
+Bereits seit zehn Jahren gibt es nun schon die Toolbox, und auf dem Weg dorthin gab es einge Veränderungen, die wir hier aufzeigen wollen:
+
 ## Die ersten Jahre
 
 ### 2014
