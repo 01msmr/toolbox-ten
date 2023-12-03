@@ -5,3 +5,4 @@
 [die Werkstätten](werkstaetten.md)
 [Aktionen](aktionen.md)
 [Vorträge](vortraege.md)
+[gimmick:themechooser](Choose theme)
